@@ -1,4 +1,12 @@
-## https://imagekit.io/tools/asset-public-link?detail=%7B%22name%22%3A%22ef961b0e73a6ee4e856b0b34b4b2456f.jpg%22%2C%22type%22%3A%22image%2Fjpeg%22%2C%22signedurl_expire%22%3A%222024-12-01T22%3A55%3A46.173Z%22%2C%22signedUrl%22%3A%22https%3A%2F%2Fmedia-hosting.imagekit.io%2F%2F04339137b5db4dfd%2Fef961b0e73a6ee4e856b0b34b4b2456f.jpg%3FExpires%3D1733093746%26Key-Pair-Id%3DK2ZIVPTIP2VGHC%26Signature%3DMVGA9~LJYSjeiEcZqJTQsVjlEe5nX3yBbcWdBKyCCJJSuHlrCabJC~JovC4UOy9Yj63M81xzpb9BA4xiMcZ1yGbv3wCWMtmMwHCGADZldMnWQ~S3QixI2iE-Q6uYILBVGbcnwUtXv5U3ykxWY3pPKBi4ig~EaEuBvwsS-CV5I7-JGeimxvY2bUXGHFYOeae-27UeEeLHVmZiidwSuFX9FwDLOO6DV58qSgSUjdRkd1Lah0XQSJXth0XHpUmhJpe2jKkAKS1XmD98Ou5gEpUuIUQlqG0Yf6YYwIF2GHyTozBjEmKAPnSrzR4NAqqUJZX3bTE8IKtqujDPkt3EajTytQ__%22%7D
+## 𔓕 ︶︶ ୨୧ ︶︶ 𔓕 
+︶︶︶ ⊹ ︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶
+![ef961b0e73a6ee4e856b0b34b4b2456f](https://github.com/user-attachments/assets/0b46a7c7-cb16-4dab-9f36-68700240744d)
+୨ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ ୧
+	
+ -  _she/her & they/them_
+ ## 𔓕 ︶︶ ୨୧ ︶︶ 𔓕 
+
+
 
 <!--
 **4methyst/4methyst** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
