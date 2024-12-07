@@ -1,6 +1,7 @@
 ## ─ ⋅ ⋅ ⋅ ──── ♡ ─── ⋅ ⋅ ⋅ ──
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
-![432feb17901769849f94c49756b24e26](https://github.com/user-attachments/assets/ece065ea-f3b2-4b92-bd12-6243edac40fc)
+![Untitled39_20241130155129](https://github.com/user-attachments/assets/ac39c358-a022-4d73-a5ef-1e2ad8e531c5)
+
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
 	
  -  **she/<ins>her** & <sup><ins>they/them
