@@ -1,8 +1,4 @@
-## ─ ⋅ ⋅ ⋅ ──── ♡ ─── ⋅ ⋅ ⋅ ──
-୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
-![Untitled39_20241130155129](https://github.com/user-attachments/assets/ac39c358-a022-4d73-a5ef-1e2ad8e531c5)
-
-୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ꒰୨ ୧꒱ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧
-	
- -  **she/<ins>her** & <sup><ins>they/them
- ## ─ ⋅ ⋅ ⋅ ──── ♡ ─── ⋅ ⋅ ⋅ ──
+![image border](https://github.com/user-attachments/assets/65b1ba63-aeaf-448f-a567-9327177a9e68)
+![columbina etheral icon](https://github.com/user-attachments/assets/38773963-08a8-49ab-a21a-f321bf762025)
+୨ㅤ࣪ㅤ︶︶︶︶ㅤㅤ‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎ ‎‎‎‎‎‎‎‎‎‎‎‎‎‎[_c★rrd ! ✧_](https://carrd.tw1sted.co)ㅤㅤ︶︶︶︶ㅤ࣪ㅤ୧‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎   
+![image border](https://github.com/user-attachments/assets/dc159bad-303b-4356-ba75-cdb61b525bce)
