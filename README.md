@@ -1,4 +1,6 @@
-![image border](https://github.com/user-attachments/assets/65b1ba63-aeaf-448f-a567-9327177a9e68)
-![columbina etheral icon](https://github.com/user-attachments/assets/38773963-08a8-49ab-a21a-f321bf762025)
+![image border](https://github.com/user-attachments/assets/d589584f-dcb6-4af5-ab46-769b12e516de)
+![columbina ethereal icon](https://github.com/user-attachments/assets/e1a8961b-728e-4c52-91f9-ae6dfd15bfa8)
+
+
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤ‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎ ‎‎‎‎‎‎‎‎‎‎‎‎‎‎[_c★rrd ! ✧_](https://carrd.tw1sted.co)ㅤ︶︶︶︶ㅤ࣪ㅤ୧‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎   
-![image border](https://github.com/user-attachments/assets/dc159bad-303b-4356-ba75-cdb61b525bce)
+![image border](https://github.com/user-attachments/assets/2cc0cdf9-87c4-4d90-89fe-e7d14d307f4a)
