@@ -3,5 +3,5 @@
 
 
 ୨ㅤ࣪ㅤ︶︶︶︶ㅤ‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎ ‎‎‎‎‎‎‎‎‎‎‎‎‎‎[_c★rrd ! ✧_](https://tw1sted.carrd.co)ㅤ︶︶︶︶ㅤ࣪ㅤ୧‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎   
-୨ㅤ࣪ㅤ︶︶ working on my rentry! ㅤ︶︶ㅤ࣪ㅤ୧‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎   
+୨ㅤ࣪ㅤ︶︶ ㅤworking on my rentry! ㅤ︶︶ㅤ࣪ㅤ୧‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎   
 ![image border](https://github.com/user-attachments/assets/2cc0cdf9-87c4-4d90-89fe-e7d14d307f4a)
