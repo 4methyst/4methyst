@@ -3,4 +3,4 @@
 </p>
 
 ୨‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎ ‎‎‎‎‎‎‎‎‎‎‎‎‎‎[_c★rrd ! ✧_](https://tw1sted.carrd.co) ୧‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎   
-୨ㅤ[_r3ntry ! ✧_](https://rentry.co/selfi1sh) on wip.ㅤ୧‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎   
+୨ㅤ[_r3ntry ! ✧_](https://rentry.co/self1sh) on wip.ㅤ୧‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎   
