@@ -1,7 +1,6 @@
-![image border](https://github.com/user-attachments/assets/d589584f-dcb6-4af5-ab46-769b12e516de)
-![columbina ethereal icon](https://github.com/user-attachments/assets/e1a8961b-728e-4c52-91f9-ae6dfd15bfa8)
+<div align="center">
+<image src="https://github.com/user-attachments/assets/e1a8961b-728e-4c52-91f9-ae6dfd15bfa8">
+</p>
 
-
-୨ㅤ࣪ㅤ︶︶︶︶ㅤ‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎ ‎‎‎‎‎‎‎‎‎‎‎‎‎‎[_c★rrd ! ✧_](https://tw1sted.carrd.co)ㅤ︶︶︶︶ㅤ࣪ㅤ୧‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎   
-୨ㅤ࣪ㅤ︶︶ ㅤworking on my rentry! ㅤ︶︶ㅤ࣪ㅤ୧‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎   
-![image border](https://github.com/user-attachments/assets/2cc0cdf9-87c4-4d90-89fe-e7d14d307f4a)
+୨‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎ ‎‎‎‎‎‎‎‎‎‎‎‎‎‎[_c★rrd ! ✧_](https://tw1sted.carrd.co) ୧‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎   
+୨ㅤ[_r3ntry ! ✧_](https://rentry.co/selfi1sh) on wip.ㅤ୧‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎   
