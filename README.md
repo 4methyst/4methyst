@@ -1,6 +1,5 @@
 <div align="center">
-<image src="https://github.com/user-attachments/assets/e1a8961b-728e-4c52-91f9-ae6dfd15bfa8">
+<image src="![1000063339](https://github.com/user-attachments/assets/36c96729-a06d-4397-91ae-2ece0b29517f)
+">
 </p>
-
-୨‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎ ‎‎‎‎‎‎‎‎‎‎‎‎‎‎? ୧‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎‎   
 
